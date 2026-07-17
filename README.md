@@ -1,1 +1,1 @@
-# result-checker-system
+INTERLINK POLYTECHNIC
